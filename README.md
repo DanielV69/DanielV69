@@ -2,7 +2,7 @@
 - 👀 I’m interested in stuff
 - 🌱 I’m currently learning stuff
 - 💞️ I’m looking to collaborate on stuff
-- 📫 How to reach me (you can't)
+- 📫 How to reach me:                               (you can't)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: stuff
 
